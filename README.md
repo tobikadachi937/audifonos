@@ -6,3 +6,5 @@
 ![skullcandy](https://user-images.githubusercontent.com/65374030/145630288-3db2a75f-5711-4e87-9213-6bc4eb0701c7.png)
 ![headset1](https://user-images.githubusercontent.com/65374030/145630292-f8e44803-0301-4b72-a57e-41e03651788c.png)
 ![headset3](https://user-images.githubusercontent.com/65374030/145630293-473a3069-2d62-4904-8e97-74cae95f3164.png)
+
+![pexels-parag-deshmukh-577769](https://user-images.githubusercontent.com/65374030/145633278-b2eb67d1-e0cd-450e-85b0-0c91acd1133f.jpg)
